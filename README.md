@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects for practice
 - 📫 How to reach me,  [LinkedIn](https://www.linkedin.com/in/charlotte-emma-whiting-5337a368/)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Many moons ago, I was a British Tae Kwon Do champion 
+- ⚡ Random fact: I can count in Korean
 
 <!---
 CharEms-W/CharEms-W is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
